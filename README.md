@@ -1,6 +1,9 @@
 HELLO BYI, my w key and caps lock keys are broken along with my two key. If i type weirdly or my words dont have w in it thast why. I typed this by copy and pasting w HELP
 
 
+BAD guys is gone im going to cry and kill myself guys. I CANT DO THIS.
+
+
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⣀⠤⠔⠒⠀⠀⠉⠀⠀⠁⢀⠌⠑⢎⡜⣡⢋⠭⣍⠭⡛⢖⡲⢤⣄⣀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⣀⢴⠺⠍⠂⠀⠀⠀⠀⠀⠀⠈⠀⠡⠀⠠⠀⠀⠐⠡⢎⠲⣌⠲⡩⢶⢡⠋⠔⠊⡝⠲⢤⣀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
