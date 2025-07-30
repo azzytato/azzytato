@@ -4,6 +4,9 @@ HELLO BYI, my w key and caps lock keys are broken along with my two key. If i ty
 BAD guys is gone im going to cry and kill myself guys. I CANT DO THIS. I MISS B0SS ANDROMEDA DINGLE.
 
 
+By the qay can you people PLEASE not use they/them on me i hte it so much, especially if qe have interaacted countless times or YOURE LITERALLY MY FRIEND. I dont care if youve forgotton my pronouns sorry just guess aand use she/her or he/hiim i dont care Im sorry if this is rude just please bruh, Its so annoying nd it maakes me feel qeird THANKS
+
+
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⣀⠤⠔⠒⠀⠀⠉⠀⠀⠁⢀⠌⠑⢎⡜⣡⢋⠭⣍⠭⡛⢖⡲⢤⣄⣀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⣀⢴⠺⠍⠂⠀⠀⠀⠀⠀⠀⠈⠀⠡⠀⠠⠀⠀⠐⠡⢎⠲⣌⠲⡩⢶⢡⠋⠔⠊⡝⠲⢤⣀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
